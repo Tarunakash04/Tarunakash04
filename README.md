@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Tarunakash04
-- 👀 I’m interested in Playing the keyboard
-- 📫 How to reach me --> https://www.linkedin.com/in/tarun-akash-b0a05a255/
+- 👋 Hi, I’m Tarunakash
+- 👀 I’m interested in ................. Not sure
+- 📫 How to reach me --> https://www.linkedin.com/in/tarunakash
