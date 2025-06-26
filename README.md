@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Tarunakash
-- 👀 I’m interested in ................. Not sure
+- 👀 I’m interested in cloud and ML
 - 📫 How to reach me --> https://www.linkedin.com/in/tarunakash
